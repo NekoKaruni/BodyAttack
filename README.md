@@ -17,6 +17,20 @@
 |12.|Desire					|Calvin Harris & Sam Smith	|5:14|
 |13.|	Shooting Darts|	Dimitri Vegas & Like Mike with R3HAB & Prezioso|	2:32|
 ---
+## Body Attack 124
+||Music|Artist|Time|
+|----|----|----|----|
+|1.|Lost Without You|Jack Wins & Caltilyn Scarlett|2:48|
+|2.|Sweet|Xenia||
+|3.|It's That Time (Dimension Remix)|Marlon Hoffstadt, Dimension & DJ Daddy Trance|2:33|
+|4.|Vertigo|Bombs Away & Luciana|2:20|
+|5.|Delirious (Boneless)|Eli Viper||
+|6.|Karma (Handz Up Remix)|Power Music||
+|7.|Fool Me (Extend Mix|CHYL||
+|8.|My Party|DJane HouseKat, Darius & Finlay & KYANU||
+|9.|Barricade (Radio Edit)|Axwell||
+|10.|「Fell Good」Healing Ritual||
+|11.|Whole Heart (BRAVVO Remix)|Gryffin & Bipolar Sunshine||
 ## Body Attack 125
 ||Music|Artist|Time|
 |----|----|----|----|
