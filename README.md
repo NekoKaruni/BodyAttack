@@ -26,7 +26,7 @@
 |4.|Vertigo|Bombs Away & Luciana|2:20|
 |5.|Delirious (Boneless)|Eli Viper||
 |6.|Karma (Handz Up Remix)|Power Music||
-|7.|Fool Me (Extend Mix|CHYL||
+|7.|Fool Me (Extend Mix)|CHYL||
 |8.|My Party|DJane HouseKat, Darius & Finlay & KYANU||
 |9.|Barricade (Radio Edit)|Axwell||
 |10.|「Fell Good」Healing Ritual||
